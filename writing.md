@@ -1,3 +1,9 @@
+# Jordan Casteel on the High Line
+
+“I am not interested in competing with anyone. I hope we all make it.” From a mural in New York City and the artist [Jordan Casteel](https://www.jordancasteel.com/about). Her portrait of two Harlem street vendors was commisioned by The High Line, a wondrous park perched on old railway tracks, soaring above the streets. [The Baayfalls](https://www.thehighline.org/art/projects/jordan-casteel/) are Fallou Wadje and her brother, I learnt the title refers to their branch of [Sufi Muslim order](https://en.wikipedia.org/wiki/Mouride#Baye_Fall) from Senegal. Jordan painted Fallou years later in front of the store where Fallou then sold her fashion line. And that piece was purchased by [the Dean Collection of Swizz Beatz and Alicia Keys](https://www.jordancasteel.com/exhibitions/giantsbkmuseum) — right now exhibited at the Brooklyn Museum. The mural that caught my attention when walking by in 2022 is not on display anymore, but the original painting is owned by MoMA.
+
+---
+
 # Cut Out Friends for Unbuilt Architecture
 
 Back in 2011, an architecture student in Sweden wanted to populate a project with humans. He photographed his friends, cut away the background, and published the collection as
