@@ -1,3 +1,9 @@
+# Isabella of Boston
+
+In Boston there is an art museum different from any other I have visited. [Isabella Stewart Gardener](https://en.wikipedia.org/wiki/Isabella_Stewart_Gardner) travelled the world and collected art. Her home was not big enough for all the paintings, sculptures, books, and scrapbooks from her trips. When her husband and travel companion died, she proceeded with their plans on her own. She launched [the construction of a building](https://www.gardnermuseum.org/about/building-isabellas-museum) worthy of the collection, and opened her museum in 1903. There is a magnificent courtyard, inspired by the architecture in Venice. Walls of the gallery rooms are crammed with frames, nothing like how traditional museums display paintings. And it works! The rooms feel like the home of someone who owns more art that they have walls. Which is kinda the case, Isabella lived on the fourth floor of the museum until her death in 1924.
+
+---
+
 # Jordan Casteel on the High Line
 
 “I am not interested in competing with anyone. I hope we all make it.” From a mural in New York City and the artist [Jordan Casteel](https://www.jordancasteel.com/about). Her portrait of two Harlem street vendors was commisioned by The High Line, a wondrous park perched on old railway tracks, soaring above the streets. [The Baayfalls](https://www.thehighline.org/art/projects/jordan-casteel/) are Fallou Wadje and her brother, I learnt the title refers to their branch of [Sufi Muslim order](https://en.wikipedia.org/wiki/Mouride#Baye_Fall) from Senegal. Jordan painted Fallou years later in front of the store where Fallou then sold her fashion line. And that piece was purchased by [the Dean Collection of Swizz Beatz and Alicia Keys](https://www.jordancasteel.com/exhibitions/giantsbkmuseum) — right now exhibited at the Brooklyn Museum. The mural that caught my attention when walking by in 2022 is not on display anymore, but the original painting is owned by MoMA.
